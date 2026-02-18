@@ -1,4 +1,4 @@
-# rerume course Course :https://youtu.be/ua-CiDNNj30?t=2688&si=_qdC0v7Tw4epE6VB 
+# Resume Course :https://youtu.be/ua-CiDNNj30?t=2688&si=_qdC0v7Tw4epE6VB 
 
 # Data-Science-
 
